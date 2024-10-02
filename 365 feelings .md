@@ -1,0 +1,3 @@
+# day 1 :not good enough 
+two days ago i felt not good enough actually i feel that way long time ago but these days it is very tense ,maybe it comes from my perfectionism ,cause i have to master what i do even if i begin in it this morninng ,or my fear of fail ,someone adviced me before and told me that i feil in any task twice once in my brain and then in real life , it is a serious problem , ik no one have to help anyone ,but i really hoped that someone could offer help to show mw the pathway and maybe i have to help myself , so if you feel that way 
+you are not alone 
