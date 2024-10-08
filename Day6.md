@@ -1,0 +1,2 @@
+# day6: maybe if i get closer i regret
+I have been always rushing,  in everything  , when i get interested in anyone or anything i rush toward it , now adays it is different,  maybe because i'm getting older and more sensible,  or maybe because i've had some lessons before about rushing toward people , i Don't feel that i would do that again , i won't risk my mental health and my overall system to know someone better , for not to regret
