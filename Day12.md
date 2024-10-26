@@ -1,0 +1,2 @@
+# day12 : zero point again 
+feeling that you lost alot of things in short period of time is so bad , like you have to build it all from the beginning , realising that this thing happened frequently for your entire life is much more bad , like you never had enough time to be happy with what you fight for , and give it all you efforts , it's not easy , everytime that happens, life feels super heavy ,feels unbearable , but unfortunately , it must go on ,unfortunately.
